@@ -1,0 +1,1 @@
+# Solindom_admath
